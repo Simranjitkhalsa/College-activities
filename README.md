@@ -1,6 +1,6 @@
-## Second-day-in-college
 
-### College's Auditorium
+
+## College's Auditorium
 ![IMG_0214](https://github.com/user-attachments/assets/10d1d7c9-752a-4b2c-824b-45c70426db71)
 
 
