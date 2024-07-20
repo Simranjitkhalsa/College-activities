@@ -6,7 +6,7 @@
 
 ### Second day
 
-In the second day of my college,Firstly I went to gurudwara sahib.After that we had to go auditorium then I went there. Only IT and CSE were in the auditorium.All the speakers and gave us lecture.All the lectures were giving only one message that work hard in next four years.
+In the second day of my college,firstly I went to gurudwara sahib.After that we had to go auditorium then I went there. Only IT and CSE were in the auditorium.All the speakers and gave us lecture.All the lectures were giving only one message that work hard in next four years.
 
 The environment of auditorium was very good .Everyone was listening to speakers silently.After the lecture all professers were asking questions to students and students were answering and were also asking questions which they had.
 
