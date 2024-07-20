@@ -1,5 +1,10 @@
 ## Second-day-in-college
-Second day
+
+### College's Auditorium
+![IMG_0214](https://github.com/user-attachments/assets/10d1d7c9-752a-4b2c-824b-45c70426db71)
+
+
+### Second day
 
 In the second day of my college.Firstly I went to gurudwara sahib.After that we had to go auditorium then I went there. Only IT and CSE were in the auditorium.All the speakers and gave us lecture.All the lectures were giving only one message that work hard in next four years.
 
