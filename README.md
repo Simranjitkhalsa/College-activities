@@ -30,3 +30,10 @@ After that there was my maths class.We went in our class.Professer came in our c
 After that our class was off and we came back to hostel.
 
 *This was about my third day in college.*
+
+## 15 july 2024
+
+On 15 july we had to go in _auditorium._ There was our induction program.Today there was an experienced teacher **Dr.Pyara Lal.** He told us that everthing changes but human doesn't changes.He shared with us,what his teachers taught him."Successful person does not leave any   opportunity".He also told us Saloks of 'Kabir ji'.He said that Change is nature of environment.He also said that all world is based on Maths, Chemistry and Physics.
+
+
+
