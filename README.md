@@ -33,7 +33,33 @@ After that our class was off and we came back to hostel.
 
 ## 15 july 2024
 
-On 15 july we had to go in _auditorium._ There was our induction program.Today there was an experienced teacher **Dr.Pyara Lal.** He told us that everthing changes but human doesn't changes.He shared with us,what his teachers taught him."Successful person does not leave any   opportunity".He also told us Saloks of 'Kabir ji'.He said that Change is nature of environment.He also said that all world is based on Maths, Chemistry and Physics.
+On 15 july we had to go in _auditorium._ There was our induction program.Today there was an experienced teacher **Dr.Pyara Lal.** He told us that everthing changes but human doesn't changes.He shared with us,what his teachers taught him."Successful person does not leave any   opportunity".He also told us Saloks of 'Kabir ji'.He said that Change is nature of environment.He also said that all world is based on Maths, Chemistry and Physics.He said that everyone has their own sight and right.
 
+## Pancham Jai Singh Gill:
+Then our senior from 4th year came.He gave us lesson how to see person's reactions from his eyes.He told us that we can read a person's mind by his eyes.
+This was all about the day.
+
+## 16 July 2024
+**Randhir Sir**
+On 16 july 2024 again our session was in auditorium for induction.Today Randhir Sir came there,he showed all students how to make profile on github.
+
+**Sony Goyal:**
+
+After Randhir sir,Mr Sony Goyal came in auditorium for interacting with us.Mr Sony Goyal an alumnus of the prestigious IIM Ahmedabad is a mentor. Mr Sony Goyal sir brings over 15 years of experience to help to crack CAT exam.Mr Sony Goyal sir told us rules to achieve our goal in life. 
+
+## 17 july 2024
+
+On 17 july we had our Maths class at 9'o clock.Then we went to our maths class.There teachers put us problems of Integration and Differentiation. Teacher gave us sometime to solve those problems.After sometime she came and checked our sums.Then she gave us homework.
+
+After that our next lecture was of UHV(universal human values). In that class teachers told us about our aspirations. She said that our aspiration requirements are:
+
+- Right understanding
+- Relationship
+- Physical facility(material prosperity)
+
+She said that Excitement and Happiness.Excitement depends on moments but happiness continues whole life.This lecture was of two hours.
+
+
+This was about the day in the college.
 
 
