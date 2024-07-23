@@ -63,3 +63,15 @@ She said that Excitement and Happiness.Excitement depends on moments but happine
 This was about the day in the college.
 
 
+## 18 july 2024 
+
+On 18th july there was our class of UHV.![IMG_0224](https://github.com/user-attachments/assets/5e48a332-00c1-4a10-8b74-d68a084a226b)
+Today we had to start new chapter which was 'Understanding of human as coexistence of self and body.In this chapter mam told us about our self and body. Mam told us that our self needs respect and happiness and our body needs phsical facilities.She also told us that sources of our imagination are:
+
+1.Preconditioning
+2.Sensation
+3.Natural acceptance
+
+After that we had class of peer interaction.That class was took by our seniors.In that class our seniors taught us about MS Excel.They taught us very well.They also told us about chat gpt.This class was of 2 hours.After this class we were free.
+
+## 19 july 2024
