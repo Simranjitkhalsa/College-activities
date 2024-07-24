@@ -75,3 +75,31 @@ Today we had to start new chapter which was 'Understanding of human as coexisten
 After that we had class of peer interaction.That class was took by our seniors.In that class our seniors taught us about MS Excel.They taught us very well.They also told us about chat gpt.This class was of 2 hours.After this class we were free.
 
 ## 19 july 2024
+
+Today our session was in auditorium.
+
+## Kanwardeep:
+
+Today Kanwardeep mam came in auditorium to give us lecture.She told us about some important points.
+
+Essential soft skills for students:
+
+- Goal Setting
+- Teamwork
+- Public Speaking
+- Resume writing
+- Networking
+
+  ## Dr Jaswinder Singh:
+
+  Then Dr Jaswinder Singh came in auditorium.He told us that everything contains math.He also told us Bhai Veer Singh Ji poem which was based on Time.
+  He told us that our body contains
+
+  - 14 Bones in face
+  - 8 in head
+  - 3 bones in each ear
+  - 8 bones in wrist
+  - 12 bones in each finger
+  - 2 in thumb
+  - 5 in palm
+    He also give us trick to learn this.
