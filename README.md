@@ -103,3 +103,6 @@ Essential soft skills for students:
   - 2 in thumb
   - 5 in palm
     He also give us trick to learn this.
+
+
+  ## 22 July 2024
