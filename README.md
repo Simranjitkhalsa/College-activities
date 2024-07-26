@@ -106,3 +106,14 @@ Essential soft skills for students:
 
 
   ## 22 July 2024
+
+  On 22 july 2024 we had to go in auditorium.Today Dr. Surinderbir Singh came to interact with us.He told us about
+
+  - Package
+  - Placement
+  - Wings on fire
+  - Ignited minds
+
+  **Dr pushpinder**
+
+  
