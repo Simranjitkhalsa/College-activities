@@ -40,7 +40,9 @@ Then our senior from 4th year came.He gave us lesson how to see person's reactio
 This was all about the day.
 
 ## 16 July 2024
-**Randhir Sir**
+
+**Randhir Sir:**
+
 On 16 july 2024 again our session was in auditorium for induction.Today Randhir Sir came there,he showed all students how to make profile on github.
 
 **Sony Goyal:**
@@ -69,7 +71,9 @@ On 18th july there was our class of UHV.![IMG_0224](https://github.com/user-atta
 Today we had to start new chapter which was 'Understanding of human as coexistence of self and body.In this chapter mam told us about our self and body. Mam told us that our self needs respect and happiness and our body needs phsical facilities.She also told us that sources of our imagination are:
 
 1.Preconditioning
+
 2.Sensation
+
 3.Natural acceptance
 
 After that we had class of peer interaction.That class was took by our seniors.In that class our seniors taught us about MS Excel.They taught us very well.They also told us about chat gpt.This class was of 2 hours.After this class we were free.
@@ -127,9 +131,26 @@ Essential soft skills for students:
 He also said us that there are three styles of communication:
 
 1.Aggresive
+
 2.Passive
+
 3.Assertive
 
 His lecture was so nice.We really enjoyed it.
 
+
+## 23 july 2024
+
+Today we had class of UHV.Today started our new chapter **"Understanding harmony in society".** Four basic goals are:
+
+- Right understanding
+- Right feeling
+- Prosperity
+- Fearlessness
+
+Mam told us about Health Self regulation which means if body is able to perform given instructions,you will feel that you have responsibility of using right utilization of body.
+
+ **Basics of Chemistry**
+ 
+Next we had class of chemistry but today mam was absent.Then we were free at 12 noon.
   
