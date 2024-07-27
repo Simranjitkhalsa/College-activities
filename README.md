@@ -153,4 +153,16 @@ Mam told us about Health Self regulation which means if body is able to perform 
  **Basics of Chemistry**
  
 Next we had class of chemistry but today mam was absent.Then we were free at 12 noon.
+
+## 24 july 2024
+
+**Guaravdeep Singh:**
+
+He told us a good line **"The happier we are the more people will be attract towards you"**. He told his own story.He said that find mistakes in yourself rather than finding in others.He also said that find good things in yourself.He said that Self love will help you to live good in college.
+
+After him Students of 1st year sang songs.Then Yuvraj Sir(professor of Civil Engeering) gave lecture for 10 minutes.
+
+After that Lakhbir sir told us about *National Progame or Technology Enhanced Learning* (NPTEL).
+
+After this we were free.
   
