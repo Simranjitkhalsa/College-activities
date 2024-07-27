@@ -35,7 +35,7 @@ After that our class was off and we came back to hostel.
 
 On 15 july we had to go in _auditorium._ There was our induction program.Today there was an experienced teacher **Dr.Pyara Lal.** He told us that everthing changes but human doesn't changes.He shared with us,what his teachers taught him."Successful person does not leave any   opportunity".He also told us Saloks of 'Kabir ji'.He said that Change is nature of environment.He also said that all world is based on Maths, Chemistry and Physics.He said that everyone has their own sight and right.
 
-## Pancham Jai Singh Gill:
+**Pancham Jai Singh Gill:**
 Then our senior from 4th year came.He gave us lesson how to see person's reactions from his eyes.He told us that we can read a person's mind by his eyes.
 This was all about the day.
 
@@ -78,7 +78,7 @@ After that we had class of peer interaction.That class was took by our seniors.I
 
 Today our session was in auditorium.
 
-## Kanwardeep:
+**Kanwardeep:**
 
 Today Kanwardeep mam came in auditorium to give us lecture.She told us about some important points.
 
@@ -90,7 +90,7 @@ Essential soft skills for students:
 - Resume writing
 - Networking
 
-  ## Dr Jaswinder Singh:
+ **Dr Jaswinder Singh:**
 
   Then Dr Jaswinder Singh came in auditorium.He told us that everything contains math.He also told us Bhai Veer Singh Ji poem which was based on Time.
   He told us that our body contains
@@ -114,6 +114,22 @@ Essential soft skills for students:
   - Wings on fire
   - Ignited minds
 
-  **Dr pushpinder**
+  **Dr pushpinder:**
+
+  Dr Pushpinder Singh told us that we must know our learning style.He told us about meaning of smart:
+
+- S:Specific
+- M:Measurable
+- A:Achievement
+- R:Realistic
+- T:Time
+
+He also said us that there are three styles of communication:
+
+1.Aggresive
+2.Passive
+3.Assertive
+
+His lecture was so nice.We really enjoyed it.
 
   
