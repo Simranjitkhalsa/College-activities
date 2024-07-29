@@ -165,4 +165,16 @@ After him Students of 1st year sang songs.Then Yuvraj Sir(professor of Civil Eng
 After that Lakhbir sir told us about *National Progame or Technology Enhanced Learning* (NPTEL).
 
 After this we were free.
+
+## 25 july 2024:
+
+On 25 july 2024 I had audition of solo singing competition.We had to go to IT auditorium at 9:00am.We reached auditorium at 8:50am.All students were already present there.I was little nervous.Everyone was practicing there,they were singing very well.
+
+We waited till 10:30am then head of cultural club came for judgement.He started auditions.My turn was at last.Performance of all students were very nice and attractive.
+
+After sometime my turn came.My felt that I performed very well.I perfomed shabad(Aisi preet kro mann mere).After some time result came I got selected.I was so happy.
+
+Then we were free at 12:30.At 1'o clock we had maths paper.After taking break of half hour I went to give paper.Our paper finished at 2:30pm.
+
+After that we were free.
   
